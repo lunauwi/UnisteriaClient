@@ -8,6 +8,6 @@
 
 💈 Donate To Unisteria Team! (limuix): https://www.buymeacoffee.com/unisteriaclient
 
-🥳 Now Download At: https://qiwi.gg/file/h9mZ5832-UnisteriaNeonIII
+🥳 Now Download At: bit.ly/UnisteriaClientNeon
 
 💥 Have Fun Bypassing The Anti-Cheat!
