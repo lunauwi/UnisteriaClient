@@ -2,9 +2,9 @@
 
 🏖️ Unisteria Client
 
-😶‍🌫️ Current Version: Unisteria N3 Open Beta
+😶‍🌫️ Current Version: Unisteria Nova
 
-🚀 Version N3
+🚀 Version Nova Open Beta
 
 💈 Donate To Unisteria Team! (limuix): https://www.buymeacoffee.com/unisteriaclient
 
