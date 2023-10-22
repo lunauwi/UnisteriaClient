@@ -8,6 +8,7 @@
 
 💈 Donate To Unisteria Team! (limuix): https://www.buymeacoffee.com/unisteriaclient
 
-🥳 Now Download At: unisteria.netlify.app
+🥳 Now Download At: https://unisteria.dev
+
 
 💥 Have Fun Bypassing The Anti-Cheat!
